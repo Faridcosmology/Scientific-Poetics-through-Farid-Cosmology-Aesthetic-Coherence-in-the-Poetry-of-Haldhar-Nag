@@ -1,0 +1,1 @@
+# Scientific-Poetics-through-Farid-Cosmology-Aesthetic-Coherence-in-the-Poetry-of-Haldhar-Nag
